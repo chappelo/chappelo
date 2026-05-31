@@ -2,7 +2,7 @@
 
 📍 Tokyo
 
-[chappelow.com](https://www.chappelo.com/)
+[chappelo.com](https://www.chappelo.com/)
 
 #### Latest Zenn Articles - Japanese Only
 
